@@ -7,7 +7,7 @@ artist, designer, game dev
 
 -----
 
-Death to corporate control, Freedom of device modifications. 😳
+💎 Death to corporate control, Freedom of device modifications.
 
 
 <!---
