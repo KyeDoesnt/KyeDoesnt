@@ -1,6 +1,7 @@
 🍣( [kyedo.dev](https://kyedo.dev), [@kyedo_](https://twitter.com/i/user/937220918912225280) )  
 
-Artist and game developer.  
+**`Architecht of nonsense.`**  
+artist, designer, game dev
 
 
 
