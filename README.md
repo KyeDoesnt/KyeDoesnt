@@ -5,6 +5,9 @@ artist, designer, game dev
 
 <a href="https://ko-fi.com/kyedo"><img src="https://raw.githubusercontent.com/KyeDoesnt/KyeDoesnt/main/assets/kofi.png" width="185px" alt="support me on kofi!"></a>
 
+-----
+
+Death to corporate control, Freedom of device modifications. 😳
 
 
 <!---
