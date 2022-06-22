@@ -1,9 +1,9 @@
-🍣( [kyedo.dev](https://kyedo.dev), [@kyedo_](https://twitter.com/i/user/937220918912225280) )  
+🍣( [kyedo.dev](https://kyedo.dev), [@kyedoart](https://twitter.com/i/user/937220918912225280) )  
 
 **`Architecht of nonsense.`**  
 artist, designer, game dev
 
-<a href="https://ko-fi.com/kyedo"><img src="https://raw.githubusercontent.com/KyeDoesnt/KyeDoesnt/main/assets/kofi.png" width="185px" alt="support me on kofi!"></a>
+<a href="https://ko-fi.com/kyedoart"><img src="https://raw.githubusercontent.com/KyeDoesnt/KyeDoesnt/main/assets/kofi.png" width="185px" alt="support me on kofi!"></a>
 
 -----
 
